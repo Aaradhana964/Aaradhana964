@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Aaradhana
 - 🌱 I’m currently pursuring Btech ...
 - 💞️ I’m passionate to learn new things ...
-- 📫 How to reach me  through linkedin ..
+- 📫 u can reach me  through linkedin ..
 
 
 <!---
